@@ -4,5 +4,5 @@
 - 🥑 Vegan-not perfect, interested in healthy lifestyle
 - 🏇🏼 Equestrian
 - 🌷 Jeg snakker norsk, mówię po polsku, I speak english und Ich spreche ein bisschen Deutch ✌🏼
-- 👩🏼‍💻 Currently learning React 💪🏼
+- 👩🏼‍💻 Currently learning React, Next.js, GraphQL 💪🏼
 - 📫 How to reach me: https://dkkazmierczak.com or LinkedIn : https://www.linkedin.com/in/dkkazmierczak/
