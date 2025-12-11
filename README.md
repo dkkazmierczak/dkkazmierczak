@@ -1,7 +1,7 @@
 - 👋🏼 Hi! My name is Dominika ☺
-- ♐ I'm 25 years old
+- ♐ I'm 29 years old
 - 🏳 I live in Norway, but I come from Poland
-- 🥑 Vegan-not perfect, interested in healthy lifestyle
+- 🥑 Interested in healthy lifestyle
 - 🏇🏼 Equestrian
 - 🌷 Jeg snakker norsk, mówię po polsku, I speak english und Ich spreche ein bisschen Deutch ✌🏼
 - 📫 How to reach me: LinkedIn : https://www.linkedin.com/in/dkkazmierczak/
