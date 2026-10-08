@@ -1,6 +1,6 @@
 - 👋🏼 Hi! My name is Dominika ☺
-- ♐ I'm 29 years old
-- 🏳 I live in Norway, but I come from Poland
+- ♐ I'm 30 years old
+- 🏳 I come from Poland
 - 🥑 Interested in healthy lifestyle
 - 🏇🏼 Equestrian
 - 🌷 Jeg snakker norsk, mówię po polsku, I speak english und Ich spreche ein bisschen Deutch ✌🏼
